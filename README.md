@@ -46,14 +46,15 @@ I read this interesting quote the other day:
 * Azalea (_Ericaceae Rhododendron_)
 * Chrysanthemum (_Anthemideae Chrysanthemum_)
 * Dahlia (_Coreopsideae Dahlia_)
-* Calculus 
+
+* Calculus
  * A professor
  * Has no hair
  * Often wears green
 * Castafiore
  * An opera singer
  * Has white hair
-   * Is possibly mentally unwell
+ * Is possibly mentally unwell
 
 1. Cut the cheese
   
@@ -67,11 +68,12 @@ I read this interesting quote the other day:
 We pictured the meek mild creatures where··
 They dwelt in their strawy pen,··
 Nor did it occur to one of us there··
-To doubt they were kneeling then.··
+To doubt they were kneeling then.
 
-1. Crack three eggs over a bowl.··
-Now, you're going to want to crack the eggs in such a way that you don't make a mess.··
-If you _do_ make a mess, use a towel to clean it up!··
-2. Pour a gallon of milk into the bowl.··
+1. Crack three eggs over a bowl.  
+Now, you're going to want to crack the eggs in such a way that you don't make a mess.  
+If you _do_ make a mess, use a towel to clean it up!
+
+2. Pour a gallon of milk into the bowl.  
 Basically, take the same guidance as above: don't be messy, but if you are, clean it up!
 
